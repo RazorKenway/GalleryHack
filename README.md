@@ -31,4 +31,12 @@ SL ANDROID Channel Doesn't Promote & Encourage Any illegal Activities, SL ANDROI
 
 ## Thak you very mutch
 
-### Video Lesson :https://youtu.be/hT9qfU5695o
+### Video Lesson :https://youtu.be/hT9qfU5695o (part 1)
+###              :https://t.me/c/1374078574/72 (part 2) only telegram channel users
+
+### join telegram :https://t.me/joinchat/UebGbvZ36Vuh5q56
+
+
+
+
+
